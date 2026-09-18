@@ -218,4 +218,4 @@ Just Enough Items is available as a full free version, with all features and upd
 Unlock your crafting potential today! Download Just Enough Items for free and elevate your Minecraft gameplay!
 
 ---
-**Last updated:** 2026-09-17 21:57:13 UTC
+**Last updated:** 2026-09-18 00:03:18 UTC
